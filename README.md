@@ -1,5 +1,5 @@
 <div align="center">
-finding a name for the vox lucifer and alastor polycule got me here <br>
+pray, not for the gods, nor for the betterment of others, but for <i>yourself.</i> <br>
   
 ### [atabook](https://first-aid-kit.atabook.org)<br>
 </div>
